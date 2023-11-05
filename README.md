@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **B-tech Final Year on Computer science**
 
-- 👯 I’m looking to collaborate on **I'm actively looking for projects that align with my skills to collaborate and create meaningful outcomes.**
+- 👯 I’m looking to collaborate on **Projects that align with my skills to collaborate and create meaningful outcomes.**
 
 - 📫 How to reach me **Email:satipmohanty@gmail.com phone:7735393097**
 
